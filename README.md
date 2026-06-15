@@ -19,4 +19,6 @@ Hey, I'm kind ^^ Don't be shy (again) to interact because I don't bite (not anym
 ---
 
 ### Fictionkin
-PartyRager [Backroom]
+- .Gary “Roach” Sanderson [Call of Duty]
+- .SCP-049 [SCP]
+- .Eyeless Jack [Creepypasta]
