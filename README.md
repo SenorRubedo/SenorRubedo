@@ -19,6 +19,8 @@ Hey, I'm kind ^^ Don't be shy (again) to interact because I don't bite (not anym
 ---
 
 ### Fictionkin
-- .Gary “Roach” Sanderson [Call of Duty]
-- .SCP-049 [SCP]
-- .Eyeless Jack [Creepypasta]
+- <a href="https://fictkin1.carrd.co">.Gary “Roach” Sanderson [Call of Duty]</a>
+
+- <a href="https://fictkin2.carrd.co">.Eyeless Jack [Creepypasta]</a>
+
+- <a href="https://fictkin3.carrd.co">.SCP-049 [SCP]</a>
